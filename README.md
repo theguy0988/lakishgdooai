@@ -1,0 +1,2 @@
+# lakishgdooai
+kaisu hsjavii kaisdenat
